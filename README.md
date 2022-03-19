@@ -88,11 +88,13 @@ SEEP🇨🇭: допомога українцям 🇺🇦
 [Ukrainian Guests in Switzerland and Surroundings](https://www.facebook.com/groups/354211539939618)
 
 [Осередок українців у Женеві](https://www.facebook.com/groups/1091252917571731/)
+[Українці в Аарґау](https://www.facebook.com/groups/326213629480681/?ref=share)
 
 ### WhatsApp:
 
 [Допомога біженцям у Швейцарії](https://chat.whatsapp.com/F1f18mV9oDM35nuTiQTTAs)
 [Чат Люценру](https://chat.whatsapp.com/G8qFB8UzZINJJGPorMiCys)
+[Чат Українці в Аарґау](‎Öffne diesen Link, um meiner WhatsApp Gruppe beizutreten: https://chat.whatsapp.com/HYbblXTkjdT1GG3jHsxmgv)
 
 
 # Проживання
@@ -203,6 +205,8 @@ Mercredi (reservé pour les enfants): 11h00-13h00 / 14h00-18h
 
 безкоштовні курси DE (Zurich, Winterthur and online)
 [sprachschule](https://www.vox-sprachschule.ch/en/refugees?utm_source=email&utm_medium=newsletter&utm_campaign=Help_Refugees)
+
+Безкоштовний YouTube курс німецької для початківців [](https://youtube.com/channel/UCyCEhzEFhpuGGRZH2DVFsVA)
 
 
 # Медицина та Страхування
